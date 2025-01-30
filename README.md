@@ -1,4 +1,4 @@
 - Hi, I’m @superfastscyphozoa! But you can call me Chell because it is my name 😄
 - I’m interested in video games like fallout, minecraft, and rain world!
-- I’m currently studying animal care!
+- I’m no longer currently studying animal care. fuck!
 - My pronouns are they/them
